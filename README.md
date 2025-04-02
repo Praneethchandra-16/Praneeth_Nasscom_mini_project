@@ -1,1 +1,0 @@
-# Praneeth_Nasscom_mini_project
